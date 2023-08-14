@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @0xmore
+- 👀 I’m interested in crypto educator and VR enthusiast
+- 🌱 I’m currently learning VR development with Unity
+- Lets connect
